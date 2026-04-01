@@ -22,7 +22,7 @@
 
 › 💬 Asᴋ ᴍᴇ ᴀʙᴏᴜᴛ : Cᴏʟʟᴀʙᴏʀᴀᴛɪᴏɴ, Tᴇᴄʜ Sᴜᴘᴘᴏʀᴛ
 
-› 📫 Hᴏᴡ ᴛᴏ ʀᴇᴀᴄʜ ᴍᴇ : ᴛᴇᴄʜᴘʀᴏʙᴏʏʙᴜsɪɴᴇss@ɢᴍᴀɪʟ.ᴄᴏᴍ
+› 📫 Hᴏᴡ ᴛᴏ ʀᴇᴀᴄʜ ᴍᴇ : https://a404x.blogspot.com
 
 › 😄 Pʀᴏɴᴏᴜɴs : Aɪ ʟɪxɪɴ 
 
@@ -39,7 +39,7 @@ Sᴛᴀʏ ᴜᴘᴅᴀᴛᴇᴅ ᴡɪᴛʜ ᴛʜᴇ ʟᴀᴛᴇsᴛ ᴛᴜᴛᴏ
 <img src="https://user-images.githubusercontent.com/74038190/212744287-14f66c13-5458-40dc-9244-8ff533fc8f4a.gif" width="400">
 
 ## 🌐 Mʏ Sᴏᴄɪᴀʟs :
-[![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/iam.ali.hossen.official) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/iam.ali.hossen.official) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@iamalihossen_official) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@TECHPROBOY_OFFICIAL) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:techproboybusiness@gmail.com)
+[![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/A404X) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/A404XOFFICIAL) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@A404X) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@A404X) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:a404xbusiness@gmail.com)
 
 <img src="https://user-images.githubusercontent.com/74038190/212284087-bbe7e430-757e-4901-90bf-4cd2ce3e1852.gif" width="100">
 
@@ -73,14 +73,14 @@ Sᴛᴀʏ ᴜᴘᴅᴀᴛᴇᴅ ᴡɪᴛʜ ᴛʜᴇ ʟᴀᴛᴇsᴛ ᴛᴜᴛᴏ
 <img src="https://user-images.githubusercontent.com/74038190/212744287-14f66c13-5458-40dc-9244-8ff533fc8f4a.gif" width="400">
 
 ### 🔝 Tᴏᴘ Cᴏɴᴛʀɪʙᴜᴛᴇᴅ Rᴇʙᴏ
-![](https://github-contributor-stats.vercel.app/api?username=iamalihossenofficial&limit=5&theme=dark&combine_all_yearly_contributions=true)
+![](https://github-contributor-stats.vercel.app/api?username=A404X&limit=5&theme=dark&combine_all_yearly_contributions=true)
 
 <img src="https://user-images.githubusercontent.com/74038190/212744287-14f66c13-5458-40dc-9244-8ff533fc8f4a.gif" width="400">
 
 <img src="https://user-images.githubusercontent.com/74038190/235224431-e8c8c12e-6826-47f1-89fb-2ddad83b3abf.gif" width="300">
 
 ---
-[![](https://visitcount.itsvg.in/api?id=iamalihossenofficial&icon=5&color=13)](https://visitcount.itsvg.in)
+[![](https://visitcount.itsvg.in/api?id=A404X&icon=5&color=13)](https://visitcount.itsvg.in)
 
 <img src="https://user-images.githubusercontent.com/74038190/212747919-84b68444-0d81-46db-a338-7ec50e9dd4cd.gif" width="300">
 
